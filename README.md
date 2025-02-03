@@ -1,6 +1,7 @@
 # Hi there, I'm Mauricio Carbal Martinez 👨‍💻
 
-![github_header_adjusted](https://github.com/user-attachments/assets/63e80664-5f71-4847-8bb1-695dedfc448b)
+![github_header_adjusted](https://github.com/user-attachments/assets/52dfa01b-15a8-4b15-b220-6398826dc593)
+
 
 
 ## 🚀 About Me
